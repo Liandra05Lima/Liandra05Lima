@@ -2,11 +2,9 @@
 
 💜🐺 Meu nome é Liandra 🐺💜
 
-![](cv)[](https://media1.tenor.com/m/YTDyK4CsJ6MAAAAd/stray-kids.gif)
-![](https://media.tenor.com/Jqjicib1kKgAAAAM/park-jimin-jimin.gif)
+
+![](https://media1.tenor.com/m/vTB_Rf-9wYMAAAAC/jinmojv21-bts.gif)
 
 
 <!--
 
-
-![](https://media1.tenor.com/m/ujMdlaJfQtQAAAAC/i-miss-you-bts-im-an-army.gif)
